@@ -2,7 +2,7 @@
 <div class="ds-markdown ds-markdown--block">
 <p>"Domino Dreams" is a popular mobile game where players can enjoy domino-based puzzles and challenges. While the game is free to play, it often includes in-app purchases and opportunities to earn free coins, which can be used to unlock hints, power-ups, and other features. Here are six potential ways to unlock free coins in "Domino Dreams":</p>
 <p>&nbsp;</p>
-<h2><a href="https://sites.google.com/view/how-to-get-domino-dreams-free-/">CLICK TO GET LINK</a></h2>
+<h2><a href="https://allresources.xyz/dominocoins.html/">CLICK TO GET LINK</a></h2>
 <p>&nbsp;</p>
 <h3>1. <strong>Daily Rewards and Login Bonuses</strong></h3>
 <ul>
